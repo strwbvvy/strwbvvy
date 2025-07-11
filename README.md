@@ -4,9 +4,9 @@
 
 **ꔫ** i am a minor (16)
 
-**ꔫ** usually afk & i only respond to whispers, c+h is fine
+**ꔫ** usually afk & i only respond to whispers, c+h is ok
 
-**ꔫ** feel free to talk to me tho im super friendly i swear
+**ꔫ** feel free to talk to me tho im super friendly i swear !! i js may not respond bc im usually working on cosplay / playing another game
 
 **ꔫ** i'm probably online with my friend as reno/rufus ff7 or wallace/steven pkm
 
